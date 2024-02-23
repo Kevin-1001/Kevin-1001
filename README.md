@@ -12,7 +12,7 @@ Greetings, cosmic voyagers! 🌌 Step into my universe and let's explore what li
 
 ## 🌐 Transmitting My Coordinates:
 
-[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/kevinaddis101) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Kevin K Thomas)
+[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/kevinaddis101) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://in.linkedin.com/in/kevin-k-thomas-39015b227)
 
 # 💻 Tech Constellations:
 
